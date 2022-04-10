@@ -12,4 +12,4 @@ Our model will help to prevent 2 types of Coal thefts:
 
 <img src="[WhatsApp Image 2022-04-10 at 11 38 16](https://user-images.githubusercontent.com/93326858/162604940-a07d1c47-807d-4c68-a4a8-96718b830631.jpeg)">
 
-<img src="![WhatsApp Image 2022-04-10 at 11 31 59](https://user-images.githubusercontent.com/93326858/162604982-5b1e7254-e84d-4d96-a203-dec4749bc351.jpeg)">
+<img src="[WhatsApp Image 2022-04-10 at 11 31 59](https://user-images.githubusercontent.com/93326858/162604982-5b1e7254-e84d-4d96-a203-dec4749bc351.jpeg)">
